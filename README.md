@@ -41,8 +41,8 @@ Sinta-se à vontade para explorar e acompanhar meu crescimento! 🌸
 ## 📫 Vamos nos conectar?
 
 - **💌 Email:** [brendantrabalhos@gmail.com](mailto:brendantrabalhos@gmail.com)  
-- **💼 LinkedIn:** [Seu Perfil](https://linkedin.com/in/brendanascimentoo)  
-- **🐱 GitHub:** [@seuusuario](https://github.com/behnascimentoo)  
+- **💼 LinkedIn:** [Brenda Nascimento](https://www.linkedin.com/in/brenda-nascimento-b3030b262/)  
+- **🐱 GitHub:** [@behnascmentoo](https://github.com/behnascimentoo)  
 
 ---
 
