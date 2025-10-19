@@ -6,4 +6,4 @@ Aqui guardo meus projetos, ideias e experimentos de código.
 ---
 
 📫 **Contato:**  
-[github](https://github.com/behnascimentoo)
+[GitHub](https://github.com/behnascimentoo)
